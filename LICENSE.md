@@ -1,4 +1,4 @@
-
+advanced jump to steal lucky blocks Script is the best jump to steal lucky blocks Script, featuring auto-sell and infinite resources. Safe and
 
 
 
